@@ -6,7 +6,7 @@
 ### <div align="center">I'm Ben - I like to build stuff</div>  
   
 
-- 🔭 I help folks integrate Unstoppable Domains  
+- 🔭 I help folks integrate code 
   
 
 - 🌱 Currently in the midst of a Web3 Journey  
