@@ -17,7 +17,7 @@
 
 - ⚡ Fun fact: I pronounce GIF - "JIF"  
 
-- 🎧 Bonus fact: ghost writer music producer
+- 🎧 Bonus fact: music producer
 
 <br/>  
 
